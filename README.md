@@ -1,6 +1,7 @@
-银河官方地址 a669.com
+银河官方地址 https://a669.com
 
 银河官方地址 最新地址发布
+
 永 久 域 名 https://github.com/yh15a/yh/edit/main/README.md
 
 ##⭐️👉访问最新地址1：https://yh15a.com
