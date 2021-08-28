@@ -1,15 +1,15 @@
-万赢官方地址 df01h.com
+银河官方地址 a669.com
 
 万赢官方地址 最新地址发布
-永 久 域 名 https://github.com/buguanshi/df01h.com
+永 久 域 名 https://github.com/yh15a/yh/edit/main/README.md
 
-##⭐️👉访问最新地址1：https://df01e.com
+##⭐️👉访问最新地址1：yh15a.com
 
-##⭐️👉访问最新地址2：https://df01g.com
+##⭐️👉访问最新地址2：yh15b.com
 
-##⭐️👉访问最新地址3：https://df01f.com
+##⭐️👉访问最新地址3：yh15c.com
 
-##⭐️👉访问最新地址3：https://df01h.com
+##⭐️👉访问最新地址3：yh15d.com
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 
