@@ -2,7 +2,7 @@
 
 银河官方地址 最新地址发布
 
-永 久 域 名 https://github.com/yh15a/yh/edit/main/README.md
+永 久 域 名 https://github.com/yh15a/a669.com
 
 ##⭐️👉访问最新地址1：https://yh15a.com
 
