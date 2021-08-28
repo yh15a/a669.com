@@ -3,13 +3,13 @@
 银河官方地址 最新地址发布
 永 久 域 名 https://github.com/yh15a/yh/edit/main/README.md
 
-##⭐️👉访问最新地址1：yh15a.com
+##⭐️👉访问最新地址1：https://yh15a.com
 
-##⭐️👉访问最新地址2：yh15b.com
+##⭐️👉访问最新地址2：https://yh15b.com
 
-##⭐️👉访问最新地址3：yh15c.com
+##⭐️👉访问最新地址3：https://yh15c.comm
 
-##⭐️👉访问最新地址3：yh15d.com
+##⭐️👉访问最新地址3：https://yh15d.com
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 
